@@ -1,5 +1,5 @@
 # 💫 About Me:
-Scripter bonr in Mexico<br>Fan of videogames<br>Geek from many media<br>
+Scripter bornt in Mexico<br>Fan of videogames<br>Geek from many media<br>
 
 
 ## 🌐 Socials:
